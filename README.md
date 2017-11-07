@@ -2,4 +2,4 @@
 
 Hi everone!
 
-This is Dan, I like to workout, travel, outdoor activities.
+This is Dan. I like to workout, travel, outdoor activities.
